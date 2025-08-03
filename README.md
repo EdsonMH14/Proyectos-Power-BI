@@ -6,4 +6,4 @@ En este repositorio encontraras todos los Dashboards que he realizado con la her
 
 ## Contacto
 📫 edsommartinezhern14@gmail.com  
-🔗 [LinkedIn](link)
+🔗 [LinkedIn](www.linkedin.com/in/edson-mtz-hdz)
